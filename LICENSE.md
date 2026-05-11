@@ -1,4 +1,4 @@
-#  
+#  Fantastical for macOS smart Addon: database templates & custom shortcuts offers the most advanced Fantastical for macOS addon, with database templates and custom shortcuts. Ideal
 
 
 
